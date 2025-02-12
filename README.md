@@ -1,4 +1,4 @@
-# 加強版 MinoDuta 6% Minoxidil & Dutasteride: 0.1% 強力生髮水*MinoxidilMax 出品 (含少量丙二醇 超低過敏配方) [香港代購](https://haircores.com/）
+# 加強版 MinoDuta 6% Minoxidil & Dutasteride: 0.1% 強力生髮水*MinoxidilMax 出品 (含少量丙二醇 超低過敏配方) [香港代購](https://haircores.com/)
 
 
 網站：https://haircores.com/
